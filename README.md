@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects for my resume
 - 📫 How to reach me caros.hairstonjr@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I love college football
 
 <!---
 CarlosHairston/CarlosHairston is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
